@@ -1,7 +1,7 @@
 - 👋 Hi, I’m PrabuRaj
 - 👀 I’m interested in Video Games and Football
 - 🌱 I make super cool games by profession
-- 💞️ I prefer a hot cup of coffee after a tiery football game
+- 💞️ I prefer a hot cup of coffee after a tiring football game
 - 📫 How to reach me ...
 
 <!---
